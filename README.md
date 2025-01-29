@@ -4,4 +4,4 @@ Currently working on my own fork of Phonograph - NaMusic
 
 NaMusic icon:
 
-![NaMusic_Icon](https://github.com/user-attachments/assets/f7ca6e8d-b153-4639-a8f3-c270dd67ee8d
+![NaMusic_Icon](https://github.com/user-attachments/assets/612a5db0-8d13-499a-9da2-7dbbc4d26ec8)
