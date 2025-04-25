@@ -1,3 +1,2 @@
-NaDa Chan or simply Na is in almost all my projects
-
-N (Na), D (Da), C (Chan)
+In NaMusic Na Chan
+In Month Events gray and red
